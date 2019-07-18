@@ -1,2 +1,2 @@
 # debbie-world
-Debbie's African Safari Images
+Debbie's African Images
